@@ -1,0 +1,1 @@
+# szkriptnyelv_hazik
